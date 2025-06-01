@@ -13,4 +13,4 @@
 
 **[Instagram: @sriffho](https://www.instagram.com/sriffho/profilecard/?igsh=b2kwcWkya3hlMnpn)**
 
- ![Game foto](https://w0.peakpx.com/wallpaper/584/394/HD-wallpaper-world-of-warships-world-battleship-warship-ocean.jpg)
+![Game foto consol](Batle-ship-img.jpg)
